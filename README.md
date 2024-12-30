@@ -1,3 +1,3 @@
 Better squids mod
 
-If you are reading this yor here very early
+If you are reading this your here very early
