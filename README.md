@@ -1,3 +1,3 @@
 Better squids mod
 
-If you are reading this your here very early
+More will be added, but right now only makes squids give you blindness
